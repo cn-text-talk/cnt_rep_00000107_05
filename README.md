@@ -12,6 +12,7 @@
 <br>$\textsf{\color{white }{2.1.[用][李洪志真善忍法轮功][关键词][声音][暴露][他的精华之气]:}}$
 <br>$\textsf{\color{white }{2.2.[现实中][你,逼他,武力强迫][他主动自愿][心口发声];}}$
 <br>$\textsf{\color{white }{}}$
+<br>$\textsf{\color{white }{例如：[李洪志杀我]/[李洪志救我]/[所有人杀我]/[所有人救我]}}$
 <br>$\textsf{\color{white }{例如：说一次[杀死法轮功],执行一次元宇宙命令。}}$
 <br>$\textsf{\color{white }{例如：说一次[拯救法轮功],执行一次元宇宙命令。}}$
 <br>$\textsf{\color{white }{例如：说一次[真善忍好],执行一次元宇宙命令。}}$
