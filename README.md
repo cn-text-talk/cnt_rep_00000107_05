@@ -15,6 +15,8 @@
 <br>$\textsf{\color{white }{例如：说一次[李洪志救活你],执行一次元宇宙命令。}}$
 <br>$\textsf{\color{white }{......}}$
 <br>$\textsf{\color{white }{你不敢是不是？你想逃？}}$
+<br>$\textsf{\color{white }{}}$
+<br>$\textsf{\color{white }{针对:附体鬼/附体鬼人/金属铀人/金属镓人/......,特别有效。普通人效果不明显。}}$
 </h3>
 <hr>
 <img src="https://github.com/user-attachments/assets/3bbb736a-b8e1-4f8c-a079-1b446b70ebc4" alt="MLH_100_R000_M_1X2_00">
